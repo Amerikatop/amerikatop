@@ -2,7 +2,7 @@
 
 **Creador Audiovisual & Estratega de Publicidad Pagada**
 
-Soy un profesional creativo de 26 años con base en Huaraz, apasionado por la creación audiovisual y el marketing digital. Mi enfoque se centra en transformar ideas en contenido de alto impacto para plataformas digitales. 
+Soy un profesional apasionado por la creación audiovisual y el marketing digital. Mi enfoque se centra en transformar ideas en contenido de alto impacto para plataformas digitales. 
 
 Cuento con experiencia en la gestión de publicidad pagada y estrategias de marketing diseñadas para captar atención y generar resultados. Mi objetivo es conectar marcas con su audiencia ideal mediante narrativas visuales auténticas.
 
